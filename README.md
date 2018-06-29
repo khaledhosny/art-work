@@ -1,1 +1,1 @@
-Random collections of my “art work”.
+Random collection of my “art work”.
